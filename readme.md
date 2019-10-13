@@ -1,0 +1,1 @@
+Jendela Kita adalah sebuah project sosial yang di lakukan oleh mahasiswa president unversity. Sebagai sebuah media, jendelakita.github.io hadir memberikan wawasan dan jawaban atas pertanyaan yang hadir dalam masyarakat pada era ini.
